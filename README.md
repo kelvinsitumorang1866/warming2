@@ -12,4 +12,4 @@
 
 
 ## Lalu harapan teman-teman miliki
-> Harapan saya selama kelas ini menguasai 4 elemen
+> Harapan saya selama kelas ini menguasai 4 elemen untuk menjadi avatar 
